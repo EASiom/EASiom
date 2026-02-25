@@ -2,7 +2,7 @@
 - 👀 I’m interested in Playing Games and Building Pc's
 - 🌱 I’m currently learning Programming, im currently learning Html, css and java script :)
 - 📫 How to reach me: Discord: EASiom, Tiktok: easiom, twitch: EASiom, Steam: EASiom
-- 😄 Pronouns: He/him
+- 😄 Pronouns: He/him she/her
 - ⚡ Fun fact: Im from Germany and do random stuff
 
 <!---
